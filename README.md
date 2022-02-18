@@ -1,1 +1,1 @@
-# iosvisualnovels
+# iosvisualnovels.blogspot.com
